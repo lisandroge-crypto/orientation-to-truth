@@ -49,4 +49,4 @@ While the framework is open to dialogue, testing, and expansion, its authorship 
 
 ---
 
-*“Truth, once expressed with coherence, lives beyond its speaker. Yet it leaves a trace, and that trace begins here.”*
+*“Truth, once expressed with coherence, lives beyond its speaker. Yet it leaves a trace, and that trace begins here.”* 
