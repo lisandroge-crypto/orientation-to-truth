@@ -59,3 +59,5 @@ The world is in existence, the ground work of this world gives the necessary con
 Miss aligned will comes as a force in which inhabits the self, through the modalities of the self, and in doing so it feeds on the self. This is the sinful nature, the one which suffering in its most vivid form is manifested once the act fufilles its circular logic of casual chain. This is the human condition, non can escape it.
 Although the self modalities can be nurtured to live in truth, through the orientation toward actions function as the water that gives nutrients to the plant, thus through time and will one begins to crawl out of sin and live a life in which meaning, joy, and growth go hand to hand.
 
+
+[Orientation_to_Truth_Scholastic_Total_Codex_Complete.pdf](https://github.com/user-attachments/files/25455404/Orientation_to_Truth_Scholastic_Total_Codex_Complete.pdf)
